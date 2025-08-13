@@ -1,2 +1,0 @@
-# roronoa
-one piece character
